@@ -1,0 +1,1 @@
+https://www.youtube.com/watch?v=bhRc4TENRP0&t=2s&ab_channel=AwesomeBaduk
